@@ -2,7 +2,7 @@
 🎓 Currently studying Computer Engineering at the University of Memphis  
 💻 Passionate about learning to code and growing through collaboration  
 🤝 Looking to connect with fellow Computer Science and Engineering students  
-📱 Reach me on WhatsApp: [+233 592 329 043](https://wa.me/233592329043)  
+📱 Reach me on https://www.linkedin.com/in/ gloria-enchill-a22966131
 😄 Pronouns: She/Her  
 🎶 Fun fact: I get genuinely excited about food, and music is my daily fuel!  
 
