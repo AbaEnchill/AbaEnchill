@@ -3,7 +3,6 @@
 💻 Passionate about learning to code and growing through collaboration  
 🤝 Looking to connect with fellow Computer Science and Engineering students  
 📱 Reach me on https://www.linkedin.com/in/ gloria-enchill-a22966131
-
 🎶 Fun fact: I get genuinely excited about food, and music is my daily fuel!  
 
 <!---
